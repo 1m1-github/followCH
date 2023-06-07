@@ -1,5 +1,7 @@
 # followCH
-stable, true democracy without gun violence
+lots of guns and no gun violence
+
+https://recorder.google.com/14db1d7d-9700-46b2-8a79-6bdd25ede708
 
 in the US, imo, the biggest fear everyone lives under, is gun violence...I have realized a solution (surely I am not the first)...a good solution, though of course difficult to implement, but possible...I will eventually publish it...it is called "follow Switzerland": guns need license, almost every household has a gun via a military license via mandatory service....why does this work:
 - pro gun ppl want to protect vs tyrannical government...that is important, however, actually, military protects against that, i.e. decides who rules, i.e. to uphold democracy in the US...no militia can win vs army
@@ -13,4 +15,8 @@ in the US, imo, the biggest fear everyone lives under, is gun violence...I have 
 - imagine how strong the US could be if it's citizens were more cohesive via such networking...a new lease on becoming the strongest society
 -  to explain that a license threshold is needed (fists need to be license free, bio weapons need to be licensed=>threshold is somewhere in between)...and that it is the military that protects democracy, not random militias....to protect vs the tyranny of a military, again, military=the people is the solution....you cannot coup against yourself
 
-https://recorder.google.com/14db1d7d-9700-46b2-8a79-6bdd25ede708
+- how many in US/CH are part of military?
+- how many days per year served?
+- pay instead of serve
+- sex neutral
+- 
