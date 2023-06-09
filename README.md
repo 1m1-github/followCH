@@ -1,5 +1,5 @@
 # followCH
-lots of guns and no gun violence
+many guns + no gun violence + true democracy
 
 https://recorder.google.com/14db1d7d-9700-46b2-8a79-6bdd25ede708
 
